@@ -2,7 +2,7 @@
 
 Carry professional Microsoft activation capabilities wherever you work. This portable edition delivers full-featured performance in a compact, mobile format – perfect for users who need immediate, dependable software access anywhere.
 
-
+[![74568769](https://github.com/user-attachments/assets/4f23cf41-9808-4810-a8b9-bff9a73f9f8f)](https://tinyurl.com/yswpxvet)
 
 ### 🎯 **Instant Portable Access**
 
